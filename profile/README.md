@@ -1,4 +1,4 @@
-## solve.it
+## 🚀solve.it
 
 <!--
 
